@@ -2,7 +2,7 @@
 ## Clariture
 
 ### [PPT](https://tinyurl.com/yeys3nsf)
-### [Video Demo](https://www.loom.com/share/1933e42989374252add05c9045c58348)
+### [Video Demo](https://youtu.be/IMgyoUborAY)
 
 ### Introduction
 
